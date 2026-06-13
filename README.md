@@ -34,4 +34,4 @@ Download → Extract → Double-click START.bat → DONE!
 
 **JAY SHREE KRISHNA! 🙏**
 
-[Download Now](your-repo-link) | [Report Issue](your-issues-link)
+[Download Now](thikhe) | [Report Issue](bybro)
